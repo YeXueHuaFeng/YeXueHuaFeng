@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on app developing. 
 - 📫 How to reach me charlene.hou007@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I can still 15 hours straight.
+- ⚡ Fun fact: I can sleep 15 hours straight.
 
 <!---
 YeXueHuaFeng/YeXueHuaFeng is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
